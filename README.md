@@ -9,7 +9,7 @@ ____
 
 ### Github - ~~[download](https://github.com/)~~
 
-### Google Drive - [download](https://drive.google.com/drive/folders/1JlAMFxVlF7hG7UyceFcYXEC7_s0v0pAh?usp=sharing) 
+### Google Drive - [download](https://drive.google.com/drive/folders/1JlAMFxVlF7hG7UyceFcYXEC7_s0v0pAh?usp=sharing)
 
 ### Yandex Disk - ~~[download](https://disk.yandex.ru/d/S33EttjggJSFkg)~~
 
