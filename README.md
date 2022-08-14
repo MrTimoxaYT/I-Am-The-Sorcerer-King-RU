@@ -19,7 +19,7 @@ ____
 
 ### Mega - ~~[download](#)~~
 
-### MediaFire - ~~[download](#)~~
+### MediaFire - ~~[download](https://www.mediafire.com/folder/6xg29j9tmkxj2/I+Am+The+Sorcerer+King)~~
 ____
 
 ## На данный момент, я залил ещё не вовсе файлообменникни и не все главы, так что просто ждите :3
