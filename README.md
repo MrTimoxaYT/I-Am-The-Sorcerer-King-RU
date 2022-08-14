@@ -17,7 +17,7 @@ ____
 
 ### pCloud - [download](https://e1.pcloud.link/publink/show?code=kZ1ck4Zy0gI9J8TH5XTrtxHM21KoSzT2YKV)
 
-### Mega - ~~[download](#)~~
+### Mega - ~~[download](https://mega.nz/folder/cgMRTAwJ#f4x_voyvJunqxd6XrlZFWQ)~~
 
 ### MediaFire - ~~[download](https://www.mediafire.com/folder/6xg29j9tmkxj2/I+Am+The+Sorcerer+King)~~
 ____
