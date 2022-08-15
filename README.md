@@ -13,7 +13,7 @@ ____
 
 ### Yandex Disk - [download](https://disk.yandex.ru/d/S33EttjggJSFkg)
 
-### Cloud Mail - [download](https://cloud.mail.ru/public/iLbG/St9jeuQAM)
+### Cloud Mail - ~~[download](https://cloud.mail.ru/public/iLbG/St9jeuQAM)~~
 
 ### pCloud - [download](https://e1.pcloud.link/publink/show?code=kZ1ck4Zy0gI9J8TH5XTrtxHM21KoSzT2YKV)
 
