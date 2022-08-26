@@ -7,7 +7,7 @@ ____
 
 ## Скачать можно тут:
 
-### Github - [download](https://github.com/MrTimoxaYT/I-Am-The-Sorcerer-King-RU/releases) Главы: 1-100
+### Github - [download](https://github.com/MrTimoxaYT/I-Am-The-Sorcerer-King-RU/releases) Главы: 1-135
 
 ### Google Drive - [download](https://drive.google.com/drive/folders/1JlAMFxVlF7hG7UyceFcYXEC7_s0v0pAh?usp=sharing) Главы: 1-135
 
